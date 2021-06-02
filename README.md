@@ -1,1 +1,1 @@
-# Psychology 
+# Human Psychology 
