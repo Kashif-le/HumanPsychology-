@@ -1,1 +1,1 @@
-# humanphycology
+# Psychology 
